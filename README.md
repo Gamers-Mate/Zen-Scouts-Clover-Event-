@@ -1,8 +1,7 @@
-# Regiment-Recruitment-Center
-Join our Discord below to join a regiment or to recruit somebody to your regiment.
+# Clover Hunting Event.
+Join our Discord below.
 
 
 
 
-
-https://discord.gg/FWXrPFr   
+https://discord.gg/dgcvxK2BxS
